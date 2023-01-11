@@ -1,4 +1,4 @@
-## Privacy Policy for REACH Explorer
+## Privacy Policy for REACH Explorer 
 
 ---
 
